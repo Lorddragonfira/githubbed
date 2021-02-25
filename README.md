@@ -5,10 +5,3 @@
 
 <----------- Welcome to the Jungle ------------>
 
-2 Truths 1 Lie
-
-I've eaten numerous tacos in my life
-
-I have yet to eat any ice cream
-
-I have never been to Africa
