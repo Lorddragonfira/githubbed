@@ -9,6 +9,6 @@
 
 I've eaten numerous tacos in my life
 
-I have yet to eat any ice cream
+I have eaten many ice cream
 
 I have never been to Africa
